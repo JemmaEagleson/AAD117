@@ -7,5 +7,6 @@ For this module we have been looking at identity and personal branding. So far w
 
 Personal Identity: 
 -------------------
-[Monogram](https://www.flickr.com/photos/127785088@N07/16112862073/in/set-72157648864458764)
-
+[Monogram](https://www.flickr.com/photos/127785088@N07/16545300778/)
+[Wordmark](https://www.flickr.com/photos/127785088@N07/16732872315/in/photostream/)
+[Supportive Work](https://www.flickr.com/photos/127785088@N07/sets/72157648864458764/)
