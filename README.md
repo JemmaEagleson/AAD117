@@ -4,3 +4,8 @@ For this module we have been looking at identity and personal branding. So far w
 
 
 ![Sketchbook Screenshot](https://raw.githubusercontent.com/JemmaEagleson/AAD117/master/Images/FullSizeRender-2.png)
+
+Personal Identity: 
+-------------------
+[Monogram](https://www.flickr.com/photos/127785088@N07/16112862073/in/set-72157648864458764)
+
